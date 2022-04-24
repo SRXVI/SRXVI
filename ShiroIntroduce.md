@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SRXVI, you can also call me "Shiro"
+- 👀 I’m interested in Digital Arts and Music
+- 🌱 I’m currently learning Digital Art, Coding, Scripting, Music
+- 💞️ Nothing to collaborate with, Yet.
+- 📫 Contact me via Twitter @ShiroFujimori
